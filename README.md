@@ -10,7 +10,8 @@ he/him. unlabeled. please try to use tone indicators!
 cantonese/mandarin/english 
 
 
-contact me
+contact me ... 
+
 discord: Kat.#2379
 
 
