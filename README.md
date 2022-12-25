@@ -12,6 +12,7 @@ cantonese/mandarin/english
 
 contact me ... 
 
+
 discord: Kat.#2379
 
 
@@ -26,13 +27,13 @@ discord: Kat.#2379
 | --- | ------------------- |
 |     | ily → **PLATONiC** |
 |     | i don’t like kys / yourmom / deez nuts jokes. |
+|     | uncomfy with nsfw jokes |
+|     | very light cursor |
 
 
 | DNi | do not interact if |
 | --- | ------------------ |
 |     | basic DNI criteria |
 |     | dsmp fan |
-|     | 18+ and NSFW |
-|     | THOSE anime fans |
-|     | actively sexualize minors |
-|     | 
+|     | 18+ / NSFW |
+|     | actively sexualize minors (fiction and nonfiction) |
