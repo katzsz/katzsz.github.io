@@ -16,7 +16,9 @@ discord: Kat.#2379
 
 
 
+
 ———
+
 
 
 
@@ -26,11 +28,11 @@ discord: Kat.#2379
 |     | i don’t like kys / yourmom / deez nuts jokes. |
 
 
-| DNi | do not interact |
+| DNi | do not interact if |
 | --- | ------------------ |
 |     | basic DNI criteria |
 |     | dsmp fan |
-|     | 18+ |
+|     | 18+ and NSFW |
 |     | THOSE anime fans |
 |     | actively sexualize minors |
-|     | 'loli'
+|     | 
