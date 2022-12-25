@@ -2,6 +2,7 @@
 
 
 ## hello, my name is **kat** and im from hong kong. (au/hk)
+###### 네 전부를 함께하고 싶어
 
 
 **he**/**her**. unlabeled. please try to use tone indicators. 
