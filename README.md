@@ -4,7 +4,7 @@
 hello, my name is kat and im from hong kong. (au/hk)
 
 
-he/him. unlabeled. please try to use tone indicators! 
+he/her. unlabeled. please try to use tone indicators! 
 
 
 cantonese/mandarin/english 
