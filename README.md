@@ -1,12 +1,12 @@
 # ヽ(・∀・)ﾉ	
 
-### hello, my name is **kat** and i'm from hong kong. (au/hk)
-----------------------------------
+hello, my name is **kat** and i'm from hong kong. (au/hk)
+-----------------------------------------------------------
 
 
 # basic info 
 
-he/her. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
+he/him or she/her. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
 
 
 **discord**: Kat.#2379
@@ -38,4 +38,6 @@ he/her. unlabeled. please try to use tone indicators. cantonese/mandarin/**engli
 
 # note
 
-#### this github isn't complete
+∙ i do block people sometimes if i feel uncomfortable or dislike their content
+
+∙ this github isn't complete
