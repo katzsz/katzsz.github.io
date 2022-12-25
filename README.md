@@ -4,9 +4,9 @@
 ----------------------------------
 
 
-# info 
+# basic info 
 
-**he**/**her**. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
+he/her. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
 
 
 **discord**: Kat.#2379
@@ -38,4 +38,4 @@
 
 # note
 
-#### THIS GITHUB ISN'T COMPLETE
+#### this github isn't complete
