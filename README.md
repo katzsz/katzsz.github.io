@@ -1,19 +1,19 @@
 # kat 
 
 
-hello, my name is kat and im from hong kong. (au/hk)
+hello, my name is **kat** and im from hong kong. (au/hk)
 
 
-he/her. unlabeled. please try to use tone indicators! 
+**he**/**her**. unlabeled. please try to use tone indicators. 
 
 
-cantonese/mandarin/english 
+cantonese/mandarin/**english** 
 
 
-contact me ... 
+contact me:
 
 
-discord: Kat.#2379
+**discord**: Kat.#2379
 
 
 
@@ -23,7 +23,7 @@ discord: Kat.#2379
 
 
 
-| BYi | before you interact |
+| **BYi** | **before you interact** |
 | --- | ------------------- |
 |     | ily → **PLATONiC** |
 |     | i don’t like kys / yourmom / deez nuts jokes. |
@@ -31,7 +31,7 @@ discord: Kat.#2379
 |     | very light cursor |
 
 
-| DNi | do not interact if |
+| **DNi | **do not interact if** |
 | --- | ------------------ |
 |     | basic DNI criteria |
 |     | dsmp fan |
