@@ -1,14 +1,18 @@
-# kat ☆
+# kat 
 
 
-hi!
-im kat and im from hong kong.
+hello
+im kat and im from hong kong. (au/hk)
 
-he/him pronouns 
+please use he/him pronouns 
 
 
-
-**BYF** ily → **PLATONiC**. i don't like kys / yourmom / deez nuts jokes etc.
+i don't like kys / yourmom / deez nuts jokes etc.
 
 
 **DNi** basic dni
+
+| BYi | before you interact |
+| --- | ------------------- |
+|  ×  | ily → **PLATONiC** |
+|  ×  | i don’t like kys / yourmom / deez nuts jokes. |
