@@ -5,15 +5,18 @@ hello
 
 my name is kat and im from hong kong. (au/hk)
 
-cantonese/mandarin/english okay.
+cantonese/mandarin/english alright
 
 please he/him pronouns 
 
 
-i don't like kys / yourmom / deez nuts jokes
+contact me
+discord: Kat.#2379
+
 
 
 ———
+
 
 
 | BYi | before you interact |
