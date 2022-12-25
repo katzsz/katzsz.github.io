@@ -5,6 +5,8 @@ hello
 
 my name is kat and im from hong kong. (au/hk)
 
+cantonese/mandarin/english okay.
+
 please use he/him pronouns 
 
 
