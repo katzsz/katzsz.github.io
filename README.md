@@ -1,13 +1,13 @@
 # kat 
 
 
-hello
+hello, my name is kat and im from hong kong. (au/hk)
 
-my name is kat and im from hong kong. (au/hk)
 
-cantonese/mandarin/english alright
+he/him. unlabeled. please try to use tone indicators! 
 
-please he/him pronouns 
+
+cantonese/mandarin/english 
 
 
 contact me
@@ -21,11 +21,15 @@ discord: Kat.#2379
 
 | BYi | before you interact |
 | --- | ------------------- |
-|  🙇🏻‍♀️  | ily → **PLATONiC** |
-|  ♡  | i don’t like kys / yourmom / deez nuts jokes. |
-
-| DNi | do not interact |
-| --- | --------------- |
 |     | ily → **PLATONiC** |
 |     | i don’t like kys / yourmom / deez nuts jokes. |
 
+
+| DNi | do not interact |
+| --- | ------------------ |
+|     | basic DNI criteria |
+|     | dsmp fan |
+|     | 18+ |
+|     | THOSE anime fans |
+|     | actively sexualize minors |
+|     | 'loli'
