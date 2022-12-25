@@ -10,9 +10,7 @@ please use he/him pronouns
 i don't like kys / yourmom / deez nuts jokes etc.
 
 
-**DNi** basic dni
-
 | BYi | before you interact |
 | --- | ------------------- |
-|  ×  | ily → **PLATONiC** |
-|  ×  | i don’t like kys / yourmom / deez nuts jokes. |
+| BYi | ily → **PLATONiC** |
+| BYi | i don’t like kys / yourmom / deez nuts jokes. |
