@@ -1,27 +1,20 @@
-# kat 
+# ヽ(・∀・)ﾉ	
+
+### hello, my name is **kat** and i'm from hong kong. (au/hk)
+----------------------------------
 
 
-## hello, my name is **kat** and im from hong kong. (au/hk)
-#### 네 전부를 함께하고 싶어
+# info 
 
-
-**he**/**her**. unlabeled. please try to use tone indicators. 
-
-
-cantonese/mandarin/**english** 
-
-
-contact me:
+**he**/**her**. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
 
 
 **discord**: Kat.#2379
 
+----------------------------------
 
 
-
-———
-
-
+# rules 
 
 
 | **BYi** | **before you interact** |
@@ -38,3 +31,11 @@ contact me:
 |     | dsmp fan |
 |     | 18+ / NSFW |
 |     | actively sexualize minors (fiction and nonfiction) |
+
+
+----------------------------------
+
+
+# note
+
+#### THIS GITHUB ISN'T COMPLETE
