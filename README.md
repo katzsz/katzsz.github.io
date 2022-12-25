@@ -31,7 +31,7 @@ contact me:
 |     | very light cursor |
 
 
-| **DNi | **do not interact if** |
+| **DNi** | **do not interact if** |
 | --- | ------------------ |
 |     | basic DNI criteria |
 |     | dsmp fan |
