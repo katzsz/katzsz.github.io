@@ -7,16 +7,22 @@ my name is kat and im from hong kong. (au/hk)
 
 cantonese/mandarin/english okay.
 
-please use he/him pronouns 
+please he/him pronouns 
 
 
-i don't like kys / yourmom / deez nuts jokes etc.
+i don't like kys / yourmom / deez nuts jokes
 
 
-——————————————————————————————————————————————————————
+———
 
 
 | BYi | before you interact |
 | --- | ------------------- |
-| BYi | ily → **PLATONiC** |
-| BYi | i don’t like kys / yourmom / deez nuts jokes. |
+|  🙇🏻‍♀️  | ily → **PLATONiC** |
+|  ♡  | i don’t like kys / yourmom / deez nuts jokes. |
+
+| DNi | do not interact |
+| --- | --------------- |
+|     | ily → **PLATONiC** |
+|     | i don’t like kys / yourmom / deez nuts jokes. |
+
