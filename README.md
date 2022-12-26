@@ -1,13 +1,19 @@
 # ヽ(・∀・)ﾉ	
 
-hello, my name is **kat** and i'm from hong kong. (au/hk)
+ 
+![IMG_7461](https://user-images.githubusercontent.com/121400730/209555861-950da227-040f-469c-9b61-e7d8a98e5a06.GIF)
+
+
 -----------------------------------------------------------
 
 
 # basic info 
 
-he/him or she/her. unlabeled. please try to use tone indicators. cantonese/mandarin/**english** 
+hey, this is kat *!*
 
+i'm from hong kong.
+
+he / her. chinese (hk ++ au). please tell me if you need tone tags.
 
 **discord**: Kat.#2379
 
@@ -39,5 +45,3 @@ he/him or she/her. unlabeled. please try to use tone indicators. cantonese/manda
 # note
 
 ∙ i do block people sometimes if i feel uncomfortable or dislike their content
-
-∙ this github isn't complete
