@@ -1,44 +1,47 @@
-# ヽ(・∀・)ﾉ	 
-
+# hi
 
 -----------------------------------------------------------
 
+hey, this is kat *!*
 
-# basic info 
 
-hey, this is kat *!* i'm from hong kong. he / her. chinese (hk ++ au). please tell me if you need tone tags. 
+he / her 13 13-15. chinese (hk / au). 
 
-**discord**. **insta** genshin UID ... 
+**please tell me if you need tone tags**. 
 
-please dm to ask!
 
 ----------------------------------
 
 
-# rules 
-
-
 | **BYi** | **before you interact** |
 | --- | ------------------- |
-|     | ily → **platonic** |
-|     | i don’t like kys / yourmom / deez nuts jokes |
-|     | uncomfy with nsfw jokes |
-|     | very light cursor |
-
+|     | please sb to unf |
+|     | i try my best to interact whenever i can |
+|     | i go private sometimes |
+|     | ily → platonic |
+|     | i don’t like kys / your mom / deez nuts jokes |
+|     | light cursor |
 
 | **DNi** | **do not interact if** |
 | --- | ------------------ |
 |     | basic DNI criteria |
 |     | dsmp fan |
-|     | 18+ / NSFW |
+|     | NSFW |
 |     | actively sexualize minors (fiction and nonfiction) |
+|     | in or used to be ed/sh/💐twt |
+|     | don’t interact / not interactive or nothing in common. |
 
 
 ----------------------------------
 
 
-# note
+## 📝
 
-∙ i do block people sometimes if i feel uncomfortable or dislike their content
+∙ ask in dm (selective): **discord** . **insta** . genshin UID .
 
-ty for visiting ‹𝟹
+∙ block people sometimes if i feel uncomfortable or dislike their content
+
+∙ [archive](https://twitter.com/jydz09) 
+
+
+thank you for visiting ‹𝟹
