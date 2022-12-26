@@ -1,11 +1,12 @@
-# hi
+#   ⁺ ° 𓆩♡𓆪 ˏˋ 
 
 -----------------------------------------------------------
 
-hey, this is kat *!*
+## hey, 
+this is kat ↓16 
 
 
-he / her 13 13-15. chinese (hk / au). 
+he / her chinese (hk / au). 
 
 **please tell me if you need tone tags**. 
 
@@ -43,5 +44,7 @@ he / her 13 13-15. chinese (hk / au).
 
 ∙ [archive](https://twitter.com/jydz09) 
 
+
+-----------------------------------
 
 thank you for visiting ‹𝟹
