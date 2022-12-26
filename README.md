@@ -1,34 +1,27 @@
-#   ⁺ ° 𓆩♡𓆪 ˏˋ 
-
 -----------------------------------------------------------
 
-## hey, 
-this is kat ↓16 
+#   ⁺ ° 𓆩♡𓆪 ˏˋ ☆ 
 
-
-he / her chinese (hk / au). 
+kat or ri. ↓16. i go by he/her pronouns. hk + au. unlabelled 
 
 **please tell me if you need tone tags**. 
 
+#genshintwt. not spoiler or leak free! no tag leaks.
 
 ----------------------------------
 
 
 | **BYi** | **before you interact** |
 | --- | ------------------- |
-|     | please sb to unf |
+|     | don't dm me if i soft block you |
 |     | i try my best to interact whenever i can |
-|     | i go private sometimes |
-|     | ily → platonic |
+|     | all ilys → platonic |
 |     | i don’t like kys / your mom / deez nuts jokes |
-|     | light cursor |
 
 | **DNi** | **do not interact if** |
 | --- | ------------------ |
-|     | basic DNI criteria |
+|     | [basic dni](https://basic-dni.crd.co/)  |
 |     | dsmp fan |
-|     | NSFW |
-|     | actively sexualize minors (fiction and nonfiction) |
 |     | in or used to be ed/sh/💐twt |
 |     | don’t interact / not interactive or nothing in common. |
 
@@ -38,13 +31,9 @@ he / her chinese (hk / au).
 
 ## 📝
 
-∙ ask in dm (selective): **discord** . **insta** . genshin UID .
+∙ ask in dm (selective): **discord** . **insta** . genshin UID . (i don't have tiktok)
 
 ∙ block people sometimes if i feel uncomfortable or dislike their content
 
-∙ [archive](https://twitter.com/jydz09) 
-
 
 -----------------------------------
-
-thank you for visiting ‹𝟹
