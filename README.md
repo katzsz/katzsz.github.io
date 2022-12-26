@@ -1,7 +1,4 @@
-# ヽ(・∀・)ﾉ	
-
- 
-![IMG_7461](https://user-images.githubusercontent.com/121400730/209555861-950da227-040f-469c-9b61-e7d8a98e5a06.GIF)
+# ヽ(・∀・)ﾉ	 
 
 
 -----------------------------------------------------------
@@ -9,13 +6,11 @@
 
 # basic info 
 
-hey, this is kat *!*
+hey, this is kat *!* i'm from hong kong. he / her. chinese (hk ++ au). please tell me if you need tone tags. 
 
-i'm from hong kong.
+**discord**. **insta** genshin UID ... 
 
-he / her. chinese (hk ++ au). please tell me if you need tone tags.
-
-**discord**: Kat.#2379
+please dm to ask!
 
 ----------------------------------
 
@@ -45,3 +40,5 @@ he / her. chinese (hk ++ au). please tell me if you need tone tags.
 # note
 
 ∙ i do block people sometimes if i feel uncomfortable or dislike their content
+
+ty for visiting ‹𝟹
