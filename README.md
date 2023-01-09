@@ -6,7 +6,7 @@ kat or ri. ↓16. i go by he/her pronouns. hk + au. unlabelled
 
 **please tell me if you need tone tags**. 
 
-#genshintwt. not spoiler or leak free! no tag leaks.
+( #genshintwt ) not spoiler or leak free! no tag leaks.
 
 ----------------------------------
 
@@ -22,8 +22,8 @@ kat or ri. ↓16. i go by he/her pronouns. hk + au. unlabelled
 | --- | ------------------ |
 |     | [basic dni](https://basic-dni.crd.co/)  |
 |     | dsmp fan |
-|     | in or used to be ed/sh/💐twt |
-|     | don’t interact / not interactive or nothing in common. |
+|     | in ed/sh/poppytwt |
+|     | don’t interact / not interactive or nothing in common |
 
 
 ----------------------------------
@@ -33,7 +33,7 @@ kat or ri. ↓16. i go by he/her pronouns. hk + au. unlabelled
 
 ∙ ask in dm (selective): **discord** . **insta** . genshin UID . (i don't have tiktok)
 
-∙ block people sometimes if i feel uncomfortable or dislike their content
+∙ i block people sometimes if i feel uncomfortable or dislike their content
 
 
 -----------------------------------
