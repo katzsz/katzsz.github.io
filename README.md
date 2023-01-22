@@ -1,39 +1,51 @@
------------------------------------------------------------
+# hi
 
-#   ⁺ ° 𓆩♡𓆪 ˏˋ ☆ 
+hello, i'm kat or you can call me rin or sz. 
 
-kat or ri. ↓16. i go by he/her pronouns. hk + au. unlabelled 
+they/he/she pronouns. unlabeled. 🇭🇰🇦🇺
 
-**please tell me if you need tone tags**. 
+------
 
-( #genshintwt ) not spoiler or leak free! no tag leaks.
+## interests
+
+my interests include
+
+- **proseka**
+- *gi*
+- *osu*
+- **cytus** (ii) + more
+
+
+##### bold = main interests
+
+##### *italicized* = losing interest
+
+----------------------------------
+
+## criteria
+
+byi 
+
+- don't dm me on an alternative account if i block you
+- please tell me if you use tone tags
+- if i say anything wrong please tell me nicely so i can correct myself. 
+  ( chances are I wasn't educated enough or didn't know ⤴ )
+  
+
+dni
+
+- you fit the [basic dni](https://basic-dni.crd.co/) criteria 
+- say “loli”
+- actively sexualize minors
 
 ----------------------------------
 
 
-| **BYi** | **before you interact** |
-| --- | ------------------- |
-|     | don't dm me if i soft block you |
-|     | i try my best to interact whenever i can |
-|     | all ilys → platonic |
-|     | i don’t like kys / your mom / deez nuts jokes |
+## notes & links 
 
-| **DNi** | **do not interact if** |
-| --- | ------------------ |
-|     | [basic dni](https://basic-dni.crd.co/)  |
-|     | dsmp fan |
-|     | in ed/sh/poppytwt |
-|     | don’t interact / not interactive or nothing in common |
+[instagram](https://www.instagram.com/kaoutive/). [twitter](https://twitter.com/pewkh). discord: **Katze#2379**
 
-
-----------------------------------
-
-
-## 📝
-
-∙ ask in dm (selective): **discord** . **insta** . genshin UID . (i don't have tiktok)
-
-∙ i block people sometimes if i feel uncomfortable or dislike their content
+i block if i feel uncomfortable or dislike you
 
 
 -----------------------------------
